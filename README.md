@@ -1,0 +1,3 @@
+- 👋 Hi, I’m alikhalaji
+- 👀 I’m interested in programing
+- 
